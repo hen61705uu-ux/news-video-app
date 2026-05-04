@@ -14,4 +14,4 @@ Generated content (audio and video) is used only for content creation and is not
 
 We respect all third-party API policies and content usage guidelines.
 
-If you have any questions, contact: your-email@example.com
+If you have any questions, contact: hen61705uu@gmail.com
